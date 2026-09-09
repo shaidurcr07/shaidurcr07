@@ -6,9 +6,11 @@
 - 💬 Ask me about ms excel, word
 - ⚡ Fun fact: I love data learning
 - Languages
-Bengali — Native
-English — Professional Working Proficiency
-Hindi — Conversational Proficiency
+Bengali- Native
+
+English- Professional Working Proficiency
+
+Hindi- Conversational Proficiency
 
 About me:
 
