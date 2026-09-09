@@ -5,7 +5,8 @@
 - 🤔 I’m looking for help with data entry
 - 💬 Ask me about ms excel, word
 - ⚡ Fun fact: I love data learning
-- Languages
+- Languages:
+
 Bengali- Native
 
 English- Professional Working Proficiency
